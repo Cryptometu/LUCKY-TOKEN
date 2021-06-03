@@ -61,4 +61,9 @@ https://t.me/joinchat/luckytokenn
 https://www.reddit.com/r/LUCKYTOKENAPP
 
 👉Tiktok
-tiktok.com/@luckytoken.app
+https://tiktok.com/@luckytoken.app
+
+👉WEB Sitesi
+🌎 https://luckytoken.app
+
+17 Haziran ön satış Dxsale de gerçekleşecektir. Telegram kanalımıza gelerek gelişmeleri yakından takip edebilirsiniz... Teşekkürler
