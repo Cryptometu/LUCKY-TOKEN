@@ -5,13 +5,20 @@
 Together we pick our way to the moon!🌕
 Let's grow fast with our simple token system of 1,000,000,000,000 tokens.📈
 
+
  TOKENOMICS 
+ 
 
 🍻 INITIAL SUPPLY - 1,000,000,000,000 LUCKY
+
 🚀 PRE-SALE soon 📅
+
 🔒 LIQUIDITY - Liquidity locked 🔒 
+
 🌎 WEB https://luckytoken.app
+
 🐦  https://twitter.com/LuckytokenA
+
 
 🌐 Usefull Links 🌐
 
