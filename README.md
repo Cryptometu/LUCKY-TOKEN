@@ -1,5 +1,6 @@
 # LUCKY-TOKEN
 
+
 🍀🍀🍀 LUCKY TOKEN (LUCKY) 🍀🍀🍀
 
 Together we pick our way to the moon!🌕
@@ -67,3 +68,6 @@ https://tiktok.com/@luckytoken.app
 🌎 https://luckytoken.app
 
 17 Haziran ön satış Dxsale de gerçekleşecektir. Telegram kanalımıza gelerek gelişmeleri yakından takip edebilirsiniz... Teşekkürler
+
+![image](https://user-images.githubusercontent.com/85232685/120693791-2215aa00-c4b2-11eb-9cc4-68888fd9d963.png)
+
